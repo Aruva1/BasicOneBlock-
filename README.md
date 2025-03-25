@@ -11,3 +11,6 @@ Don't get me wrong, it's very simple. Use - change but give credit. You can use 
 
                📂 **Config Dosyaları** 📂
     Config Download : https://drive.google.com/file/d/1lGaKsMYa5qC7Ax8bt0N8uDZtCw4Gxrjy/view?usp=sharing
+
+Discord
+https://discord.gg/yVTnrm83x6
