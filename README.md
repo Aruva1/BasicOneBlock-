@@ -9,8 +9,5 @@ You can send me images of you playing the modpack. If you want to use it in a vi
 
 Don't get me wrong, it's very simple. Use - change but give credit. You can use it commercially, but only with my permission.
 
-               📂 **Config Dosyaları** 📂
-    Config Download : https://drive.google.com/file/d/1lGaKsMYa5qC7Ax8bt0N8uDZtCw4Gxrjy/view?usp=sharing
-
 Discord
 https://discord.gg/yVTnrm83x6
